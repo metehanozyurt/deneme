@@ -1,3 +1,19 @@
 # deneme
-ben
-degiştirdim be bunu
+q
+q
+q
+
+q
+q
+q
+q
+q
+q
+q
+
+
+q
+a
+a
+a
+
