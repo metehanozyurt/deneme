@@ -1,2 +1,2 @@
 # deneme
-sadasd
+degiştirdim be bunu
